@@ -9,3 +9,4 @@
 <h1> Saya suka rebahan di pinggir kali sambil jungkir balik - Rifa <h1>
 <h1> Saya suka rebahan dan udah pernah pangmal hehe - Vania <h1>
 <h1> Saya ga suka semua - Nawwar <h1>
+Saya gabut, sehingga saya memilih untuk tidur - Ibnu
