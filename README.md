@@ -8,3 +8,4 @@
 <h1> Saya suka rebahan dan yang pangmal ibnu, johan, sama satu lagi dong - Haikal 
 <h1> Saya suka rebahan di pinggir kali sambil jungkir balik - Rifa <h1>
 <h1> Saya suka rebahan dan udah pernah pangmal hehe - Vania <h1>
+<h1> Saya ga suka semua - Nawwar <h1>
